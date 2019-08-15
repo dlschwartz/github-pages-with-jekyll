@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my home page. Why does everyone want a blog?
 
 I'm glad you are here. I plan to talk about ...
